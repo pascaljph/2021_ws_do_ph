@@ -114,7 +114,7 @@ In 2020, about 71% of all newly built robots got distributed in Asia. China has 
 
  New installations in the US declined by 8%. A recovery for the American market is projected to be of double digits for the following years.
 
-*Generally, the International Federation of Robotics expects medium growth rates across the globe until 2024.*
+#### *Generally, the International Federation of Robotics expects medium growth rates across the globe until 2024.* ####
 
 [Source](https://ifr.org/ifr-press-releases/news/robot-sales-rise-again)
 
