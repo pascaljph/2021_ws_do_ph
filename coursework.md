@@ -119,3 +119,14 @@ In 2020, about 71% of all newly built robots got distributed in Asia. China has 
 [Source](https://ifr.org/ifr-press-releases/news/robot-sales-rise-again)
 
 ---
+testesrtkefernejnrebv
+
+erinfgireirengien
+
+
+
+ergireigneringernig
+
+.----
+---
+feknewlknfewlknef
